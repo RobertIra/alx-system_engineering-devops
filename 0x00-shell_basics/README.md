@@ -1,1 +1,1 @@
-read carefully
+Read carefully
